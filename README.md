@@ -1,3 +1,4 @@
+⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ 
 ## <span style="color:#4A5FDC;">3년차 디자이너의 개자이너 도전기🐩</span>
 ![image](https://github.com/user-attachments/assets/cb74cdf7-d905-491b-a54a-1fa882813126)
 
@@ -5,6 +6,7 @@
 🧠 UX / 마케팅 직무 도전중<br>
 💻 사용툴 : Figma, Adobe Illustration, Photoshop, Premiere Pro, Rhino, Fusion360, KeyShot, Sketch Up, Auto CAD<br>
 
+⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ 
 <!--
 **MOON-ii/MOON-ii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
