@@ -1,3 +1,12 @@
+<h1 style="color:#4A5FDC; font-family:'Gowun Dodum', sans-serif;">
+  3년차 디자이너의 개자이너 도전기🐩
+</h1>
+![image](https://github.com/user-attachments/assets/cb74cdf7-d905-491b-a54a-1fa882813126)
+<p>
+  예쁜 것, 편리한 것, 의미 있는 것을 만들고 싶어요.<br/>
+  디자인과 개발의 경계를 넘나드는 여정을 기록 중입니다. 💻🎨
+</p>
+
 ## <span style="color:#4A5FDC;">3년차 디자이너의 개자이너 도전기🐩</span>
 ![image](https://github.com/user-attachments/assets/cb74cdf7-d905-491b-a54a-1fa882813126)
 
