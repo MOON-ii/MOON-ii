@@ -4,11 +4,11 @@
 
 ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ ⋆｡ﾟ☁︎｡⋆｡ ﾟ☾ ﾟ｡ 
 
-🎨 산업디자인과 졸업<br>
-🧠 UX / 마케팅 직무 도전중<br>
-😄 언어 : 한국어, English, 汉语<br>
-💻 사용툴 : Figma, Adobe Illustration, Photoshop, Premiere Pro, Rhino, Fusion360, KeyShot, Sketch Up, Auto CAD<br>
-🌱 최근 배우고 있는 툴 : Github, Phython<br>
+🤍 산업디자인과 졸업<br>
+💜 UX / 마케팅 직무 도전중<br>
+🤍 언어 : 한국어, English, 汉语, 日本语<br>
+💜 사용툴 : Figma, Adobe Illustration, Photoshop, Premiere Pro, Rhino, Fusion360, KeyShot, Sketch Up, Auto CAD<br>
+🤍 최근 배우고 있는 툴 : Github, Phython<br>
 
 열심히 하고있다, 그림!!
 
